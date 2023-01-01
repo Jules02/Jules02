@@ -1,0 +1,3 @@
+- Jules DUPONT
+- Studying at 🇫🇷 Lycée Saint-Louis (MP\*1)
+- julesdupont02@gmail.com
