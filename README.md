@@ -1,3 +1,3 @@
 - Jules DUPONT
-- Studying at 🇫🇷 Lycée Saint-Louis (MP\*1)
+- Studying at 🇫🇷 École Nationale Supérieure des Mines de Nancy (1A FICM)
 - julesdupont02@gmail.com
