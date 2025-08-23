@@ -1,3 +1,3 @@
 - Jules DUPONT
-- Studying at 🇫🇷 École Nationale Supérieure des Mines de Nancy (2A FICM). Computer Science major.
+- MSc QIST @ TU Delft, previously @ Mines Nancy
 - julesdupont02@gmail.com
